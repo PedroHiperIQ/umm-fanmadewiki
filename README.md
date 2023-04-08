@@ -1,1 +1,1 @@
-# umm-fanmadewiki
+go to wiki already dumbass
